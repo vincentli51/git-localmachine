@@ -5,3 +5,5 @@ I finished and the Knicks lost.
 Boooooo
 But now I'm focused on actually practicing!
 I got a little lost there :/
+
+I think I'm a little more caught up :)
